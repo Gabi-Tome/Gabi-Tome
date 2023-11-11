@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gabi-Tome
-- 👀 I’m interested in snacks
+- 👀 Check out my music at https://gabitome.bandcamp.com/track/volver-a-casa
 - 🌱 I’m currently learning hydra
 - 💞️ I’m looking to collaborate on fun snacks
 - 📫 How to reach me @watup_itsgabi
